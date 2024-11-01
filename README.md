@@ -1,0 +1,1 @@
+Leave-One-oUt-Monopolistic (LOUM)
